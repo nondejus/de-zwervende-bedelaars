@@ -1,2 +1,0 @@
-# de-zwervende-bedelaars
-reclames
